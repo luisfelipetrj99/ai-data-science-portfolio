@@ -10,7 +10,7 @@ Data Scientist | AI Engineer | NLP & LLM Applications
 luisfelipetrj@gmail.com
 
 ### Resume
-[https://drive.google.com/file/d/1BkB05VEGSQ3iyosMiMhOz_eo6b1gKLYQ/view?usp=sharing]
+[Link](https://drive.google.com/file/d/1injv0zenIHYVr7dUVSXLHYS82bswu971/view?usp=drive_link
 #### Spanish version 
 [https://drive.google.com/file/d/13c5v37MN5SKEtzNSM3o_QhmxDMs2-uVr/view?usp=drive_link]
 
